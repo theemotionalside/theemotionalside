@@ -10,7 +10,7 @@
   <tr>
     <!-- LEFT COLUMN: LOCKED IMAGE SIZE -->
     <td align="center" width="200" valign="middle">
-      <img src="[https://files.catbox.moe/v49ndt.png](https://file.garden/akFw1_SGbHAV3C-a/black%20static%20steveo%20head%20rentry.png)" width="150">
+      <img src="prnscc kintro moon.png" width="150">
       <div align="center">
 
 <details>
