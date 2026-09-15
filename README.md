@@ -1,6 +1,6 @@
 ![topper](theemotionalsidegithubtopper.png)
 
-<img align="right" width="390" height="445" src="theemotionalsidegithubgraphic.png">
+<img align="right" width="380" height="445" src="theemotionalsidegithubgraphic.png">
 
 ‎ 
 ‎
