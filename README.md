@@ -3,8 +3,6 @@
 <img align="right" width="400" height="450" src="theemotionalsidegithubgraphic.png">
 
 ‎ 
-
-‎ 
 ‎
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![](https://komarev.com/ghpvc/?username=theemotionalside&color=lightgrey&label=the_love&base=34) ‎ ‎ ‎ ![](https://komarev.com/ghpvc/?username=theemotionalside&color=lightgrey&label=the_hate&base=1000)
 
@@ -49,5 +47,3 @@ I AM A MINOR!!!! / i'm super anxious, and tend to be a wee bit emotional . iwcar
 </div>
 
 <img align="left" width="470" height="300" src="theemotionalsidegithubdivider.png">
-
-[![GitHub](theemotionalsidegithubgraphic400px.png)](https://github.com)
