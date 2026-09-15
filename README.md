@@ -48,4 +48,4 @@ I AM A MINOR!!!! / i'm super anxious, and tend to be a wee bit emotional . iwcar
 
 ‎ 
 
-<img align="left" width="470" height="300" src="theemotionalsidegithubdivider3.png">
+<img align="left" width="440" height="300" src="theemotionalsidegithubdivider3.png">
