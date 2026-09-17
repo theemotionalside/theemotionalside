@@ -37,7 +37,7 @@ Always w2i! Dncopy. I prefer to not be covered cos I like showing off my skins (
   
 ***DNI*** ; T.R.A.S.H / proship, profic, darkship, jashship / factkins, RPF yumeshippers / AI supporters / radqueers, xenosatanists
 
-***IWC*** ; jashers, Mind and Soul fictionkins
+***IWC*** ; jashers / Mind and Soul fictionkins / shadouge, metadow, shadamy shippers
 
 </details>
 
