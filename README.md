@@ -26,11 +26,11 @@ Always w2i! Dncopy. I prefer to not be covered cos I like showing off my skins (
 <details>
   <summary>MUSIC</summary>
   
-***Chonny Jash*** (i've been here since CanOfSoup.,,free me), ***Fleetwood Mac***, *Stevie Nicks*, David Bowie, Will Wood, Tally Hall/Miracle Musical, The Living Tombstone, Gorillaz, Alex G
+***Chonny Jash*** (i've been here since CanOfSoup.,,free me), ***Fleetwood Mac***, *Stevie Nicks*, David Bowie, Will Wood, Tally Hall/Miracle Musical, The Living Tombstone, Gorillaz, Alex G, TV Girl
     </td>
     <!-- RIGHT COLUMN: FIXED TEXT WIDTH -->
     <td align="center" width="250" valign="middle">
-      ___THE HEART ou ARTEMIS___ ✦ he / him . i'm an **IDkin of the Heart** / dbls please dni ✦ audhd + possible bpd . also questioning P-DID  . i lov my sibs [@venetianblindman](https://github.com/venetianblindman) and cola ^___^
+      ___THE HEART ou ARTEMIS___ ✦ he / him . i'm an **IDkin of the Heart** / *dbls please dni* ✦ audhd + possible bpd . also questioning P-DID  . i lov my sibs [@venetianblindman](https://github.com/venetianblindman) and cola ^___^
       
 <details>
   <summary>DNI</summary>
