@@ -44,6 +44,7 @@ ___THE HEART ou ARTEMIS___ ✦ he / him . i'm an **IDkin of the Heart** / *dbls 
   <summary>this isn't spose to appear here.</summary>
   
 hi.i'm not good at html. why is this dropdown appearing beneath DNI. I need it to be it's own dropdown. what the fuck! but fr if you know how to fix this send me somethin on my ata or straw ty
+
 </details>
 
 
