@@ -47,7 +47,7 @@ ___THE HEART ou ARTEMIS___ ✦ he / him . i'm an **IDkin of the Heart** / *dbls 
 <details>
   <summary>AWARDS</summary>
   
-[@music-town](https://github.com/music-town)
+[@music-town](https://github.com/music-town) ✦ [@paw-town](https://github.com/paw-town)
 
 
 </div>
