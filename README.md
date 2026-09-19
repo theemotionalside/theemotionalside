@@ -39,7 +39,13 @@ Always w2i! Dncopy. I prefer to not be covered cos I like showing off my skins (
 
 ***IWC*** ; jashers / Mind and Soul fictionkins / shadouge, metadow, shadamy shippers
 
+
+<details>
+  <summary>test</summary>
+  
+  This content is hidden inside the dropdown until it is clicked!
 </details>
+
 
 </div>
 </td>
