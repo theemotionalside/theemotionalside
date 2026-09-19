@@ -14,19 +14,21 @@
       <div align="center">
 
 <details>
-  <summary>BYI</summary>
+  <summary>DNI</summary>
   
-I AM A MINOR!!!! / i'm super anxious, and tend to be a wee bit emotional . iwcare at all times thanks,. if a conversation is making me uncomfortable i might dip so just like. avoid the topic of the CJ fandom ok ok / 
-Always w2i! Dncopy. I prefer to not be covered cos I like showing off my skins (exceptions made for C/H) ^__^ C/H is always welcome
+***DNI*** ; T.R.A.S.H / proship, profic, darkship, jashship / factkins, RPF yumeshippers / AI supporters / radqueers, xenosatanists
+
+***IWC*** ; jashers / Mind and Soul fictionkins / shadouge, metadow, shadamy shippers
 
 </details>
 
 </div>
 
 <details>
-  <summary>MUSIC</summary>
+  <summary>BYI</summary>
   
-***Chonny Jash*** (i've been here since CanOfSoup.,,free me), ***Fleetwood Mac***, *Stevie Nicks*, David Bowie, Will Wood, Tally Hall/Miracle Musical, The Living Tombstone, Gorillaz, Alex G, TV Girl
+I AM A MINOR!!!! / i'm super anxious, and tend to be a wee bit emotional . iwcare at all times thanks,. if a conversation is making me uncomfortable i might dip so just like. avoid the topic of the CJ fandom ok ok / 
+Always w2i! Dncopy. I prefer to not be covered cos I like showing off my skins (exceptions made for C/H) ^__^ C/H is always welcome
     </td>
     <!-- RIGHT COLUMN: FIXED TEXT WIDTH -->
     <td align="center" width="250" valign="middle">
@@ -34,18 +36,18 @@ Always w2i! Dncopy. I prefer to not be covered cos I like showing off my skins (
 ___THE HEART ou ARTEMIS___ ✦ he / him . i'm an **IDkin of the Heart** / *dbls please dni* ✦ audhd + possible bpd . also questioning P-DID  . i lov my sibs [@venetianblindman](https://github.com/venetianblindman) and cola ^___^
       
 <details>
-  <summary>DNI</summary>
+  <summary>MUSIC</summary>
   
-***DNI*** ; T.R.A.S.H / proship, profic, darkship, jashship / factkins, RPF yumeshippers / AI supporters / radqueers, xenosatanists
-
-***IWC*** ; jashers / Mind and Soul fictionkins / shadouge, metadow, shadamy shippers
-
-<details>
-  <summary>this isn't spose to appear here.</summary>
-  
-hi.i'm not good at html. why is this dropdown appearing beneath DNI. I need it to be it's own dropdown. what the fuck! but fr if you know how to fix this send me somethin on my ata or straw ty
+***Chonny Jash*** (i've been here since CanOfSoup.,,free me), ***Fleetwood Mac***, *Stevie Nicks*, David Bowie, Will Wood, Tally Hall/Miracle Musical, The Living Tombstone, Gorillaz, Alex G, TV Girl
 
 </details>
+
+</div>
+
+<details>
+  <summary>AWARDS</summary>
+  
+[@music-town](https://github.com/music-town)
 
 
 </div>
