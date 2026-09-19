@@ -30,7 +30,8 @@ Always w2i! Dncopy. I prefer to not be covered cos I like showing off my skins (
     </td>
     <!-- RIGHT COLUMN: FIXED TEXT WIDTH -->
     <td align="center" width="250" valign="middle">
-      ___THE HEART ou ARTEMIS___ ✦ he / him . i'm an **IDkin of the Heart** / *dbls please dni* ✦ audhd + possible bpd . also questioning P-DID  . i lov my sibs [@venetianblindman](https://github.com/venetianblindman) and cola ^___^
+
+___THE HEART ou ARTEMIS___ ✦ he / him . i'm an **IDkin of the Heart** / *dbls please dni* ✦ audhd + possible bpd . also questioning P-DID  . i lov my sibs [@venetianblindman](https://github.com/venetianblindman) and cola ^___^
       
 <details>
   <summary>DNI</summary>
@@ -39,11 +40,10 @@ Always w2i! Dncopy. I prefer to not be covered cos I like showing off my skins (
 
 ***IWC*** ; jashers / Mind and Soul fictionkins / shadouge, metadow, shadamy shippers
 
-
 <details>
-  <summary>test</summary>
+  <summary>this isn't spose to appear here.</summary>
   
-  This content is hidden inside the dropdown until it is clicked!
+hi.i'm not good at html. why is this dropdown appearing beneath DNI. I need it to be it's own dropdown. what the fuck! but fr if you know how to fix this send me somethin on my ata or straw ty
 </details>
 
 
