@@ -27,8 +27,7 @@
 <details>
   <summary>BYI</summary>
   
-I AM A MINOR!!!! / i'm super anxious, and tend to be a wee bit emotional . iwcare at all times thanks,. if a conversation is making me uncomfortable i might dip so just like. avoid the topic of the CJ fandom ok ok / 
-Always w2i! Dncopy. I prefer to not be covered cos I like showing off my skins (exceptions made for C/H) ^__^ C/H is always welcome
+i'm but a wee 16-year-old !! do not flirt with me ever !!!!! / nicknames are awesomepossum / i can be pretty emotional/anxious, but i'm usually fine as long as i'm not on the topic of the CJ fandom. if i'm uncomfy i'll say something and\or leave / i'm also just. generally socially anxious and shy, but i swear i love making friends / W2I always bc it's unlikely i'll see you otherwise. always happy to C/H without W2I tho / dncover (unless C/H) i like showing my skins off ^__^ also obv dncopy / also i use a typing quirk, but it doesn't obscure my text at all
     </td>
     <!-- RIGHT COLUMN: FIXED TEXT WIDTH -->
     <td align="center" width="250" valign="middle">
