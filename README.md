@@ -32,7 +32,7 @@ i'm but a wee 16-year-old !! do not flirt with me ever !!!!! / nicknames are awe
     <!-- RIGHT COLUMN: FIXED TEXT WIDTH -->
     <td align="center" width="250" valign="middle">
 
-___THE HEART ou ARTEMIS___ ✦ he / him . i'm an **IDkin of the Heart** / *dbls please dni* ✦ audhd + possible bpd . also questioning P-DID  . i lov my sibs [@venetianblindman](https://github.com/venetianblindman) and cola ^___^
+___THE HEART ou ARTEMIS___ ✦ he / him . i'm an **IDkin of the Heart** / *dbls please dni* ✦ AuDHD + possible BPD . also questioning P-DID  . i lov my sibs [@venetianblindman](https://github.com/venetianblindman) and cola ^___^
       
 <details>
   <summary>LOVES</summary>
