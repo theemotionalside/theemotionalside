@@ -46,7 +46,8 @@ ___THE HEART ou ARTEMIS___ ✦ he / him . i'm an **IDkin of the Heart** / *dbls 
 <details>
   <summary>AWARDS</summary>
   
-[@music-town](https://github.com/music-town) ✦ [@paw-town](https://github.com/paw-town)
+[@music-town](https://github.com/music-town) (*Pony Town's The Heart Acoustic by Chonny Jash and Light by Chonny Jash*) ✦
+[@paw-town](https://github.com/paw-town) (*Pawtown's The Heart*) ✦ [@Ponytown-rewards](https://github.com/Ponytowns-rewards) (*Ponytown's The Heart*)
 
 
 </div>
