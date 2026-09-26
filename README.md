@@ -32,7 +32,7 @@ i'm but a wee 16-year-old !! do not flirt with me ever !!!!! / nicknames are awe
     <!-- RIGHT COLUMN: FIXED TEXT WIDTH -->
     <td align="center" width="250" valign="middle">
 
-___THE HEART ou ARTEMIS___ ✦ he / him . i'm an **IDkin of the Heart** / *dbls please dni* ✦ AuDHD + possible BPD . also questioning P-DID  . i lov my sibs [@venetianblindman](https://github.com/venetianblindman) and cola ^___^
+___THE HEART ou ARTEMIS___ ✦ he / him . *IDkin*/hvykin of **The Heart** / *dbls please dni* ✦ AuDHD + possible BPD . questioning P-DID  . 16 y/o - 20+ , 13- iwec
       
 <details>
   <summary>LOVES</summary>
@@ -44,10 +44,10 @@ ___THE HEART ou ARTEMIS___ ✦ he / him . i'm an **IDkin of the Heart** / *dbls 
 </div>
 
 <details>
-  <summary>AWARDS</summary>
+  <summary>KINS</summary>
   
-[@music-town](https://github.com/music-town) (*Pony Town's The Heart Acoustic by Chonny Jash and Light by Chonny Jash*) ✦
-[@paw-town](https://github.com/paw-town) (*Pawtown's The Heart*) ✦ [@Ponytown-rewards](https://github.com/Ponytowns-rewards) (*Ponytown's The Heart*)
+***The Heart*** (IDkin, dbls dni) / ***zero_one*** (lowkin, dbls int) / ***Michael Afton*** (highkin, dbls int)
+/ ***Longtail*** (mildkin, dbls int) / ***Shadow*** (mildkin, dbls int) / ***Peril*** (lowkin, dbls int) / ***Janus Sanders*** (highkin, dbls iwec)
 
 
 </div>
@@ -59,3 +59,12 @@ ___THE HEART ou ARTEMIS___ ✦ he / him . i'm an **IDkin of the Heart** / *dbls 
 ‎ 
 
 <img align="left" width="440" height="300" src="theemotionalsidegithubdivider3.png">
+
+
+‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎𑣲　𓏼　 ${\color {black} PonyTown's‎ The‎ Heart!}$
+
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [ponytowns-rewards](https://github.com/Ponytowns-rewards)‎ ‎ —‎ ‎ [paw-town](https://github.com/Paw-town) ‎ —‎ ‎ [choco-town](https://github.com/choco-town) ‎ —‎ ‎ [pt-heavyfictkin](https://github.com/pt-heavyfictkin)
+
+‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎𑣲　𓏼　 ${\color {black} PonyTown's‎‎ The‎‎ Heart‎ Acoustic‎ and‎ Light!}$
+
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  [music-town](https://github.com/music-town)
