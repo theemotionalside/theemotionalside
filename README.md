@@ -16,7 +16,7 @@
 <details>
   <summary>DNI</summary>
   
-***DNI*** ; T.R.A.S.H / proship, profic, darkship, jashship / factkins, RPF yumeshippers / AI supporters / radqueers, xenosatanists / endo/willogenic "systems" / people who cosplay the third reich/nazis
+***DNI*** ; T.R.A.S.H / proship, profic, darkship, jashship / factkins, RPF yumeshippers / AI supporters / radqueers, xenosatanists / endo/willogenic "systems" / people who cosplay the third reich/nazis / zionists / people who CONSTANTLY make jokes about israel/tel aviv
 
 ***IWC*** ; jashers / Mind and Soul fictionkins / shadouge, metadow, shadamy shippers
 
