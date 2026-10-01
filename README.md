@@ -26,8 +26,11 @@
 
 <details>
   <summary>BYI</summary>
-  
-nicknames are awesomepossum / i can be pretty emotional/anxious, but i'm usually fine as long as i'm not on the topic of the CJ fandom. if i'm uncomfy i'll say something and\or leave / i'm also just. generally socially anxious and shy, but i swear i love making friends / W2I always bc it's unlikely i'll see you otherwise. always happy to C/H without W2I tho / dncover (unless C/H) i like showing my skins off ^__^ also obv dncopy / also i use a typing quirk, but it doesn't obscure my text at all
+
+ W2I, DNCopy, DNCover unless C/H!, C/H is always open unless i'm with a friend!!
+ - i like nicknames, but please don't call me Juno
+ - i'm chill with being called slurs so long as we can both reclaim them, and im fine with kys jokes
+
     </td>
     <!-- RIGHT COLUMN: FIXED TEXT WIDTH -->
     <td align="center" width="250" valign="middle">
