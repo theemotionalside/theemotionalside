@@ -30,7 +30,7 @@
  W2I, DNCopy, DNCover unless C/H!, C/H is always open unless i'm with a friend!!
  - i like nicknames, but please don't call me Juno
  - i'm chill with being called slurs so long as we can both reclaim them, and im fine with kys jokes
- - Mind and Soul are my brothers!!!! I am [yumefamilial](https://rentry.co/yumefamilial) with them by proxy of me being a fictionkin!!!! i love my fictional brothers. ALSO i'm yumefamilial with Patton from Sanders Sides, that's my fictional dad!!!!!!!!!!!!!
+ - Mind and Soul are my brothers!!!! I am [yumefamilial](https://rentry.co/yumefamilial) with them by proxy of me being a fictionkin!!!! i love my fictional brothers. ALSO i'm yumefamilial with Patton from Sanders Sides, that's my fictional dad!!!!!!!!!!!
 
     </td>
     <!-- RIGHT COLUMN: FIXED TEXT WIDTH -->
