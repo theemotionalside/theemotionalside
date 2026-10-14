@@ -31,6 +31,7 @@
  - i like nicknames, but please don't call me Juno
  - i'm chill with being called slurs so long as we can both reclaim them, and im fine with kys jokes
  - Mind and Soul are my brothers!!!! I am [yumefamilial](https://rentry.co/yumefamilial) with them by proxy of me being a fictionkin!!!! i love my fictional brothers. ALSO i'm yumefamilial with Patton from Sanders Sides, that's my fictional dad!!!!!!!!!!!
+ - Speaking of Mind and Soul,, I am not looking for/interested in CCCC mediamates. As far as I'm concerned I have my Mind and Soul. Also I'm not interested in meeting any Maria Robotniks or Metal Sonics for the same reason.
 
     </td>
     <!-- RIGHT COLUMN: FIXED TEXT WIDTH -->
