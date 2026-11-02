@@ -51,8 +51,8 @@ ___THE HEART ou ARTEMIS___ ✦ he / him . *IDkin*/hvykin of **The Heart** / *dbl
 <details>
   <summary>KINS</summary>
   
-***The Heart*** (IDkin, dbls dni) / ***zero_one*** (lowkin, dbls int) / ***Michael Afton*** (highkin, dbls int)
-/ ***Longtail*** (mildkin, dbls int) / ***Shadow*** (mildkin, dbls int) / ***Peril*** (lowkin, dbls int) / ***Janus Sanders*** (highkin, dbls iwec) / ***Syzoth*** (newly kinfirmed)
+***The Heart*** (IDkin, dbls dni. mediamates dni/iweeec) / ***zero_one*** (lowkin, dbls int) / ***Michael Afton*** (highkin, dbls int)
+/ ***Longtail*** (mildkin, dbls int) / ***Shadow*** (mildkin, dbls int) / ***Peril*** (lowkin, dbls int) / ***Janus Sanders*** (highkin, dbls iwec) / ***Syzoth*** (highkin, dbls iwec. shang tsung kins iweeec)
 
 
 </div>
