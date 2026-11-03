@@ -42,7 +42,7 @@ ___THE HEART ou ARTEMIS___ ✦ he / him . *IDkin*/hvykin of **The Heart** / *dbl
 <details>
   <summary>LOVES</summary>
   
-***Chonny Jash*** (i've been here since CanOfSoup.,,free me), ***Fleetwood Mac***, *Stevie Nicks*, David Bowie, Will Wood, Tally Hall/Miracle Musical, The Living Tombstone, Gorillaz, Alex G, TV Girl / ***Warrior Cats***, ***Wings of Fire***, Transformers, Among Us, Sanders Sides, Sonic, Etc.
+***Chonny Jash*** (i've been here since CanOfSoup.,,free me), ***Fleetwood Mac***, *Stevie Nicks*, David Bowie, Will Wood, Tally Hall/Miracle Musical, The Living Tombstone, Gorillaz, Alex G, TV Girl / ***Warrior Cats***, ***Wings of Fire***, ***Mortal Kombat***, Transformers, Among Us, Sanders Sides, Sonic, Etc.
 
 </details>
 
