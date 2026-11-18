@@ -27,7 +27,6 @@
 <details>
   <summary>BYI</summary>
 
- W2I, DNCopy, DNCover unless C/H!, C/H is always open unless i'm with a friend!!
  - i like nicknames, but please don't call me Juno
  - i'm chill with being called slurs so long as we can both reclaim them, and im fine with kys jokes
  - Mind and Soul are my brothers!!!! I am [yumefamilial](https://rentry.co/yumefamilial) with them by proxy of me being a fictionkin!!!! i love my fictional brothers. ALSO i'm yumefamilial with Patton from Sanders Sides, that's my fictional dad!!!!!!!!!!!
@@ -37,7 +36,7 @@
     <!-- RIGHT COLUMN: FIXED TEXT WIDTH -->
     <td align="center" width="250" valign="middle">
 
-___THE HEART ou ARTEMIS___ ✦ he / him . *IDkin*/hvykin of **The Heart** / *dbls please dni* ✦ AuDHD + possible BPD . questioning P-DID  . 16 y/o - 20+ , 13- iwec
+___THE HEART ou ARTEMIS___ ✦ he / him . *IDkin*/hvykin of **The Heart** / *dbls please dni* ✦ AuDHD + possible BPD   . ***W2I***, *DNCopy*, *DNCover* unless C/H!, **C/H is always open** unless i'm with a friend!!
       
 <details>
   <summary>LOVES</summary>
@@ -51,8 +50,15 @@ ___THE HEART ou ARTEMIS___ ✦ he / him . *IDkin*/hvykin of **The Heart** / *dbl
 <details>
   <summary>KINS</summary>
   
-***The Heart*** (IDkin, dbls dni. mediamates dni/iweeec) / ***zero_one*** (lowkin, dbls int) / ***Michael Afton*** (highkin, dbls int)
-/ ***Longtail*** (mildkin, dbls int) / ***Shadow*** (mildkin, dbls int) / ***Peril*** (lowkin, dbls int) / ***Godzilla*** (mildkin, dbls iwc), ***Janus Sanders*** (highkin, dbls iwec) / ***Syzoth*** (highkin, dbls iwec. shang tsung kins iweeec)
+- ***The Heart*** (IDkin, dbls dni. mediamates dni/iweeec)
+- ***zero_one*** (lowkin, dbls int)
+- ***Michael Afton*** (highkin, dbls int)
+- ***Longtail*** (mildkin, dbls int)
+- ***Shadow*** (mildkin, dbls int)
+- ***Peril*** (lowkin, dbls int)
+- ***Godzilla*** (mildkin, dbls iwc)
+- ***Janus Sanders*** (highkin, dbls iwec)
+- ***Syzoth*** (highkin, dbls iwec. shang tsung kins iweeec)
 
 
 </div>
